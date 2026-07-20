@@ -73,4 +73,4 @@ Fake News
 
 **Kishan Singh**
 
-MBA
+MBA (Marketing & Finance)
